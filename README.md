@@ -1,0 +1,1 @@
+# brackets-anti-copy-ext
